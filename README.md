@@ -12,6 +12,8 @@ My Contact Information: 8318073807 & tharu.jahanvi215@gmail.com
 Attached to this, you will find the completed assignment along with any required documents or files. I have carefully reviewed the assignment guidelines and ensured that all requirements have been met.
 
 I would like to express my gratitude for this opportunity to contribute to  Techlane AI Private Limited. I look forward to any feedback or further instructions you may have regarding the assignment.
+I am providing the figma link below please visit
+https://www.figma.com/file/LNUqEGS5c3FkIXYU7ZsoSh/Dashboad?type=design&node-id=0%3A1&mode=design&t=LLskOnYvDMTVVT3W-1
 
 Thank you for considering my submission. If you need any further information or assistance, please feel free to reach out to me at 8318073807 or  tharu.jahanvi215@gmail.com .
 
